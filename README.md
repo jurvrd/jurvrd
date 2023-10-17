@@ -1,0 +1,9 @@
+## Oi👋
+
+- 👋 Oi, eu sou a @jurvrd 
+- 👀 Eu sou interessada em 
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+![](https://tenor.com/pt-BR/view/daeth-funi-periflight-dies-from-gif-22212023)
