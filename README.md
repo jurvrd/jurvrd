@@ -1,9 +1,9 @@
 ## Oi👋
 
 - 👋 Oi, eu sou a @jurvrd 
-- 👀 Eu sou interessada em 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 Eu sou interessada em filmes, series, livros e amo animais 
+- 🌱 Estou aprendendo ingles
+  
+
 
 ![](https://tenor.com/pt-BR/view/daeth-funi-periflight-dies-from-gif-22212023)
